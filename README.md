@@ -1,6 +1,5 @@
 # app-dev
-My first repository
-
+Diaz, Rex Vincent Allen A. | 12 - 03 - 2022
 
 # My Favorite Movie or Series
 1. Life of pi
