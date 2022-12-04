@@ -37,3 +37,6 @@ Diaz, Rex Vincent Allen A. | 12 - 03 - 2022
 - [3 idiots](https://en.wikipedia.org/wiki/3_Idiots)
 
 
+![](https://i.postimg.cc/TPHLKPt5/3-idiots.png)
+
+
